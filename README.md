@@ -1,2 +1,2 @@
 # interesting
-the lessonsaregetting more interesting
+the lessons are getting more interesting
